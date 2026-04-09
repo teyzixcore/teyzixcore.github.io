@@ -9,7 +9,7 @@ We build modern, scalable, and high-performance digital solutions.
 - Bug Fixing & Optimization
 
 ## 🌍 Connect With Us
-- WhatsApp: https://wa.me/your-number
+- WhatsApp: https://wa.me/923714699788
 - Email: teyzixcore@gmail.com
 
 ---
